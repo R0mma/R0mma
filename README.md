@@ -1,4 +1,4 @@
- Hi, I’m Roma Im currently a student at Brock University studying Computing and business.
+ Hi, I’m Roma Im currently a student at Brock University studying Computer science
  
  If you wish to contact me send me an email at roma.sandu2003@gmail.com
 
